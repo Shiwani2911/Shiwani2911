@@ -1,4 +1,4 @@
-# Hi, I'm Shivani 👋
+# Hi, I'm Shiwani 👋
 
 ### Computer Science Graduate | Software Developer | Lifelong Learner
 
